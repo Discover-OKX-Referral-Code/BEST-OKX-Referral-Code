@@ -1,4 +1,4 @@
-# Journey with OKX – Use Referral Code Code " 96613811" to Unlock Bonuses Up to $5,000!
+# Journey with OKX – Use Referral Code Code " 96613811" to Unlock Bonuses Up to $12,000!
 
 **OKX is a top-tier exchange trusted by millions worldwide. And when you sign up using referral code " 96613811 ", you gain instant access to exclusive welcome bonuses, reduced trading fees, and other powerful perks**.
 
